@@ -1,2 +1,0 @@
-# MASAI
-GOOD SKILLS
